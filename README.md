@@ -15,7 +15,7 @@
 ---
 
 ### 🌐 Let's Connect:
-- 📫 *Email*: iamabdullahsheikh786@gmail.com
+- 📫 *Email*: as.khi.pk.22@gmail.com
 - 💼 *LinkedIn*: [Ishk Abdullah](https://www.linkedin.com/in/ishkabdullah22)  
 
 ---
